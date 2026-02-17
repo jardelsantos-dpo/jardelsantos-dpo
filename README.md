@@ -96,6 +96,6 @@ Experiência prévia ampla em **Service Desk**, atuando como elo entre tecnologi
 
 ## 📫 Contato
 
-- **LinkedIn:** https://www.linkedin.com/in/jardel-santos-2012  
+- **LinkedIn:** https://www.linkedin.com/in/jardelsantos-dpo  
 - **🌐 Site:** https://jardelsantos-dpo.github.io
 
